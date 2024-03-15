@@ -3,4 +3,6 @@
 
 推荐vpn：https://hkt.scottkexue.xyz/ 
 科学上网，爱护国家
-如需帮助，可联系我：https://t.me/scotttangsan 承接搭建，可提供中转转发
+如需帮助，可联系我
+TG频道：https://t.me/youqusahre ，
+TG:https://t.me/alex_love_vivian  承接搭建，可提供中转转发
